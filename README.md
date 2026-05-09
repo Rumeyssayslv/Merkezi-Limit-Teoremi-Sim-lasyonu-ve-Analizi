@@ -1,0 +1,1 @@
+# Merkezi-Limit-Teoremi-Sim-lasyonu-ve-Analizi
